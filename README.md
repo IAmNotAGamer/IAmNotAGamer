@@ -1,4 +1,4 @@
-### Hi there 👋https://freddy-fazbears-pizza.fandom.com/wiki/Funtime_Freddy
+### Hi there
 <div>
 <a href="https://www.youtube.com/channel/UCVKF42oTnfU-mWaD-An11Dg"><img src="https://heedybaron.com/yt-2.gif" target="_blank"></a>
 <a href="https://www.facebook.com/profile.php?id=100074656969864" target="_blank"><img src="https://i.pinimg.com/originals/bc/60/2f/bc602f36b03180016436ab07c0ebee6d.gif" target="_blank"></a>
