@@ -1,4 +1,4 @@
-<p><b><font src="Alex Brush" Jesus Prada</p></b>
+<FONT FACE="Cavorting" SIZE=5 COLOR="blue">Jesus Prada</FONT>
 ### 1A-C.E.Professor Victor do amaral
 ### Professora Drielle
 ### Pensamiento Computacional
